@@ -1,1 +1,1 @@
-I work for Fu Associates, Ltd.: https://www.fu.com/
+I work for Inclined: https://www.inclinedanalytics.com/
